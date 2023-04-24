@@ -1,2 +1,2 @@
 Cronet
-Ortega Cordero Johana Gabriela 
+Ortega Cordero Johana Gabriela y Martinez Bedolla Jaromir Alexis
